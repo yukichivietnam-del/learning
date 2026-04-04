@@ -9,31 +9,40 @@ fn gtf d
 rfth tr
 tgyjt ty
 tỵ tỵ ytujyuj y
-SVD
-DSFBV
-DSFV
-DFV
-DFV
-DFV
-DFV
-D
-FV
-DFV
-D
-FV
-DFV
-D
-FV
-DFV
-DF
-V
-fnfgnfgnb
-fgb f
-gbfg
-bfgb
+SDVCSDV SDV SDV SDV
 fgb
 fgb
-fgbfg
+fgbfg SDV SDV SDV SDV SDV SDV S VD VSD V
+V SDV SD
+V SDV 
+SDV 
+SDV 
+SDV
+ S
+ DV 
+ SDV
+  S
+  DV
+   SD
+   V 
+   SD
+   V
+    SD
+    V 
+    SDV
+    SD
+
+     D
+
+
+
+
+
+      DVSDV SD
+      V S
+      DV
+       SD
+       V SD
 bf
 gb
 fgb
