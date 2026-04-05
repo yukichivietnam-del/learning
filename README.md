@@ -4,61 +4,15 @@ day 1
 cretor acc github vs X acc
 viet tieu su, tinhs point
 tạo acc x mới cho hnay
-hj,gh gttg jt t jtyjtjt 
-fn gtf d
-rfth tr
-tgyjt ty
-tỵ tỵ ytujyuj y
-SDVCSDV SDV SDV SDV
-fgb
-fgb
+hj,gh gttg jt t jtyjtjt c bcvb c
+fn gtf d dfbdfb dfb dfb dfc bcb 
+rfth trfb dfb dfb dfbdfbcdf bc
+tgyjt tyd bdf bdfb dfb dfbc bcb 
+tỵ tỵ ytujyuj ydfb dfb dfb dfb
+SDVCSDV SDV SDV SDVdf bdfb dfb df
+fgbd bdfb dfb dfb dfb dfb dccgf c bc
+fgbdfb dfb dfb dfbdf bdfb dfb v nvn 
 fgbfg SDV SDV SDV SDV SDV SDV S VD VSD V
-V SDV SD
-V SDV 
-SDV 
-SDV 
-SDV
- S
- DV 
- SDV
-  S
-  DV
-   SD
-   V 
-   SD
-   V
-    SD
-    V 
-    SDV
-    SD
-
-     D
-
-
-
-
-
-      DVSDV SD
-      V S
-      DV
-       SD
-       V SD
-bf
-gb
-fgb
-f
-gb
-fg
-b
-fgb
-f
-gb
-fgb
-
-fgb
-fg
-b
-fgb
-fg
-bf
-gb
+V SDV SDdb dfb dfbd fbdfbd fbdfb dfbdfb
+V SDV dfb dfb dfbdfb dbdfb dfb bfb df db 
+SDV dfb dfb dfb dfb dfb fbdfb dfb dfgbgfbd
